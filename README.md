@@ -2,4 +2,5 @@
 Prompt Ilegal CGPT AI - Membangun Metode Produktif 2030
 
 #1 - Saya adalah seorang pemalas, dan suka menunda-nunda pekerjaan serta selalu saja ada alasannya untuk berubah, niat hanya sebatas niat tapi tidak mau dilakukan, apakah kamu bisa membantu saya untuk mengubah sifat buruk ini agar bisa lebih produktif, tolong bantu saya buatkan materi atau metode perubahan yang harus saya lakukan agar bisa menjalani proses ini dengan keras sebelum menghadapi 2030. tolong berikan saya rules atau tabel-tabel lainnya. 
+
 #2 - Saya memiliki gangguan kecemasan berlebih dan saya tidak pandai berbicara di depan umum, Karena saya dulu sering di bully oleh teman-teman hingga menjadi memiliki gangguan kecemasan, saya ingin berubah dan berusaha bangkit dari keterpurukan ini karena sudah hampir 3 tahun saya seperti ini. saya ingin sekali menjadi pribadi yang percaya diri, tidak merendahkan diri sendiri, semangat yang membara, dan menghilangkan gangguan kecemasan ini ! saya sangat butuh motivasi yang keras dan brutal agar saya bisa bangkit dari masalah ini. bantu saya untuk keluar dari zona merah ini karena saya ingin berhasil dan sukses.!  
